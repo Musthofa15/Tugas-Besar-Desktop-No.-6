@@ -1,1 +1,2 @@
-# Tugas-Besar-Desktop-No.-6
+Nama  : Abdul Majid Musthofa
+NIM   : 32602000006
